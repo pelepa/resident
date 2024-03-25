@@ -1,2 +1,0 @@
-# resident
-brain explosion!!!
